@@ -1,4 +1,4 @@
-### Hi there 👋
+![]([   ](https://images-ext-1.discordapp.net/external/2vD_pt9kEYTg_VTnipSw24Wa5B_9eEwatr_r6COxmZ8/https/img1.picmix.com/output/pic/normal/9/0/2/8/11518209_1f443.gif?width=600&height=600))
 
 <!--
 **bummyassdude/bummyassdude** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
