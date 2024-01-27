@@ -1,4 +1,4 @@
-MY IMG STOPPED WORKING SOMEONE SAVE ME SOS IM GONNA CRY NOW MY GITHUBS UGLY N BUNS
+![]([  ](https://img1.picmix.com/output/pic/normal/8/6/1/0/11560168_27fd1.gif))
 
 <!--
 **bummyassdude/bummyassdude** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
